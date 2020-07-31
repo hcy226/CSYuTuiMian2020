@@ -3,6 +3,8 @@
 
 # 清华大学
 
+【即日起至9月1日】[2021年清华大学高等研究院计算机科学与技术专业招生信息](http://www.castu.tsinghua.edu.cn/publish/cas/921/index.html)
+
 # 北京大学
 
 # 上海交通大学
