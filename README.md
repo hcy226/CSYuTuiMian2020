@@ -86,4 +86,4 @@
 【即日起至10月20日】[华南理工大学接收2021年推荐免试研究生预报名通知](http://admission.scut.edu.cn/2020/0826/c17533a395614/page.htm?tdsourcetag=s_pctim_aiomsg)
 
 # 国防科技大学
-【即日起至9月18日】[开展2021年推免生（直博生）选拔的通知]（https://www.nudt.edu.cn/xwgg/tzgg/ae7d25dc501743f79040d4009ba3cd66.htm）
+【即日起至9月18日】[开展2021年推免生（直博生）选拔的通知](https://www.nudt.edu.cn/xwgg/tzgg/ae7d25dc501743f79040d4009ba3cd66.htm)
