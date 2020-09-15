@@ -50,6 +50,7 @@
 【即日起至9月27日】 [华东师范大学2021年接收推荐免试研究生（含直接攻博）预报名的通知](https://mp.weixin.qq.com/s/ETmnAMKTB6WmQHy4Srx8bQ)
 
 # 武汉大学
+【即日起至9月19日】[计算机学院关于接收2021年推免生预报名的通知](http://cs.whu.edu.cn/news_show.aspx?id=1327)
 
 # 华中科技大学
 
